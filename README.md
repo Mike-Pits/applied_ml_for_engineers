@@ -1,0 +1,1 @@
+My parroting the author while going through the book.
